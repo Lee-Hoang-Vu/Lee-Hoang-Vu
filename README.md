@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Hello! I'm Le Hoang Vu !!<br>👯 I'm looking for a job.<br>🤝 I really enjoy making new connections.<br>🌱 I graduated from FPT University Hanoi with a major in Software Engineering in 2024.<br>💬 If you have any questions, feel free to ask me.<br>⚡ Fun fact: I'm quite lively in a crowd but I like to be quiet when I'm alone.
+🔭 Hello!!!
 
 
 ## 🌐 Socials:
